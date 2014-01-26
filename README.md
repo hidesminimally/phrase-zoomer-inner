@@ -15,10 +15,10 @@ We've all had those moments where we're trying to pass notes in class to that cu
 
 ##**BAM.**##
 
-Now you can shoot that cute dude/chick your opener without having to say a word in class.
+Now we can shoot that cute dude/chick your opener without having to say a word in class.
 
-Now you can communicate that much clearer with your elders. 
+Now we can communicate that much clearer with your elders. 
 
-*Now we change communication forever*
+*Now you change communication forever*
 
  
