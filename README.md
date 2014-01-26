@@ -16,7 +16,7 @@ We've all had those moments where we're trying to pass notes in class to that cu
 
 ##**BAM.**##
 
-#The Phrase Zoomer-Inner will take any phrase you want, and create a bigger, sexier, and more elegant version of your phrase so that you can communicate to those that have a hard time seeing what you're saying.
+#The Phrase Zoomer-Inner will take any phrase you want, and create a bigger, sexier, and more elegant version of your phrase so that you can communicate like you were meant to: boldly.
 
 ##**BAM.**##
 
