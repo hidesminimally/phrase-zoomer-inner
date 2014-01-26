@@ -1,14 +1,9 @@
 phrase-zoomer-inner (Android application)
 ========
 
-**CHECK!THIS!OUT!!**
+
 
 For the past 48 hours, (not including brainstorming time before)I have been writing code for a program that will revolutionize how we will communicate.
-
-
-
-
-
 
 We've all had those times where we're communicating to a senior citizen and s/he just can't understand what we're saying or writing.
 
